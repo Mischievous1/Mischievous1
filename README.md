@@ -6,7 +6,7 @@ More about different types of bitcoin, source coding, and IT
 - 💞️ I’m looking to collaborate on ...
  Anything that is cool or fascinating to me.
 - 📫 How to reach me ...
-731-478-5612,or email @  dannarichards0@gmail.com 
+  501-941-9027,or email @  dannarichards0@gmail.com 
 
 <!---
 Mischievous1/Mischievous1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
